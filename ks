@@ -1,0 +1,2 @@
+ksispit
+grupa1
